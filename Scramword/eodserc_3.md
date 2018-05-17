@@ -1,6 +1,6 @@
-Unscramble this word: w a h g t e l
+Unscramble this word: e o d s e r c
 
-HINT: the unscrambled word starts with 'tha'
+HINT: the unscrambled word starts with 'rec'
 
 
 
